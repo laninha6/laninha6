@@ -1,6 +1,6 @@
 - 👋 oi eu sou a laninha
 - 👀 Eu estou interresada em aprender coisas novas
-- 🌱 No momento estou aprendendo a mecher em eses apps para me ajudar nas aulas
+- 🌱 No momento estou aprendendo a mecher neses apps para me ajudar nas aulas
 - 💞️ Procuro colaborar nas aulas
 - 📫 Se não for coisa importante não me procure
 - 😄 Pronomes:ela/dela
