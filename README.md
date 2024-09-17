@@ -3,7 +3,7 @@
 - 🌱 No momento estou aprendendo a mecher neses apps para me ajudar nas aulas
 - 💞️ Procuro colaborar nas aulas
 - 📫 Se não for coisa importante não me procure
-- 😄 Pronomes:ela/dela
+- 😄  ela/dela
 
 
 <!---
